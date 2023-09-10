@@ -1,4 +1,10 @@
-### Hi there 👋
+### 你好！ 👋
+
+我的名字是 bedung 
+
+很高兴见到你
+
+"We live, we love, we lie."
 
 <!--
 **Pfftz/Pfftz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

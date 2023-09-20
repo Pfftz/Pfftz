@@ -6,7 +6,7 @@
 
 > "We live, we love, we lie."
 
-![Image of SmurfCat](https://i.kym-cdn.com/photos/images/newsfeed/002/652/421/280.jpg)
+![Literally Me](https://i.ytimg.com/vi/hbpREOCDCSY/maxresdefault.jpg)
 
 <!--
 **Pfftz/Pfftz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

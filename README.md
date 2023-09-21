@@ -4,7 +4,7 @@
 
 很高兴见到你
 
-> "We live, we love, we lie."
+> "We live, we love, we lie, interlinked."
 
 ![Literally Me](https://i.ytimg.com/vi/hbpREOCDCSY/maxresdefault.jpg)
 
